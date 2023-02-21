@@ -1,1 +1,1 @@
-this is palindrom or  Not.Not
+this is palindrom or  Not.Notokk this is palindrom i am sutisfied
